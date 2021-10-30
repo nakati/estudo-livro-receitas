@@ -4,7 +4,7 @@
 
 ## Ingredientes
 
-- 5 bananas da terra (verde)
+- 5 bananas da terra (verde) - para 2 pessoas
 - meio litro de óleo
 - frigideira
 - sal
